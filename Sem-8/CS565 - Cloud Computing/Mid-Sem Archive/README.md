@@ -1,1 +1,0 @@
-**Note**: 2022 (M.S.) Quiz was taken as a Google Form with just enough time for completion. Hence solutions are not available.
